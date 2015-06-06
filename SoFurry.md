@@ -1,0 +1,1 @@
+SoFurry is a furry art and story community operating since 2002. Previously named "Yiffstar", the site is currently being re-written as SoFurry 2.0
